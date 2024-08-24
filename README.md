@@ -1,1 +1,1 @@
-sobre o projeto: eu pesquisei sobre codificar e fiz o codificador
+sobre o projeto: eu pesquisei sobre codificador e fiz o codificador
